@@ -1,6 +1,6 @@
 - 👋 Hi, I’m George E. Simpson Sr. @Picsimpson
 - 👀 I’m interested in All things artistic and creative 
-- 🌱 I’m currently learning Studying to become a certified cloud practitioner
+- 🌱 I’m currently Studying to become a certified cloud practitioner
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
